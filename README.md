@@ -1,7 +1,7 @@
 # 求个网站好人有好报2021
 求个网站好人有好报2021快快山
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+# <a href="https://github.com/clnnews/qxgge/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 求个网站好人有好报2021　　我突然乱极了，写到这里，好象无形中又生成了一个梦境，晕晕的感觉。我想我可能在这新生成的梦境里情绪过于高涨了，所以晕晕的了。
 而我终将会有我的故事。
